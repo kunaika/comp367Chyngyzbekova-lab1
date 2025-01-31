@@ -1,1 +1,0 @@
-# comp367Chyngyzbekova-lab1
